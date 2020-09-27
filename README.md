@@ -8,6 +8,6 @@ link:-[https://discord.gg/7cXrGeZ](https://discord.gg/7cXrGeZ)
 
 # How to setup video totorial?
 
-link:- []()
+link:- [https://youtu.be/i2EwsNHmnL8](https://youtu.be/i2EwsNHmnL8)
 
 # LIKE SHARE SUBSCRIBE
